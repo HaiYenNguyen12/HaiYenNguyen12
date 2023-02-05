@@ -1,4 +1,4 @@
-### Hi there 👋 :smile::heart_eyes:
+### Hi guys 👋 :smile::heart_eyes:
 ## :gift_heart: I'm Yen Nguyen. Welcome to my house :airplane: 
 
 
